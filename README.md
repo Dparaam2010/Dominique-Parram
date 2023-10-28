@@ -7,7 +7,7 @@ Welcome Explore my GitHub profile and dive into my coding world!
 🌍 When I'm not in the digital realm, you can find me exploring the world, hitting the gym, and enjoying quality time with my two furry friends. I'm a dog mommy, an adventurer at heart, and a dedicated family person. I derive pleasure from chasing my passion for sports, and, most importantly, embracing life with an infectious zest for happiness, laughter, and living my best life. 🌟🏞️🐾🏀😄
 
 📫 Feel free to reach out, collaborate, or just say hi – I'm always open to exciting opportunities and new connections." 
-👈🏿 connect with me by my links or via email dparaam@gmail.com
+ connect with me by my https://www.linkedin.com/in/dominique-parram/ or via email dparaam@gmail.com 👈🏿
 
 Take a look at a selection of the projects I've been involved in below:👇🏿
 
